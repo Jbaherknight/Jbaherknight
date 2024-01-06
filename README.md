@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jbaherknight
-- 👀 I’m interested in enjoy delisious food
+- 👀 I’m interested in enjoying delicious food
 - 🌱 I’m currently learning how to sleep comfortably
 - 📫 How to reach me [246462502@qq.com](mailto:246462502@qq.com)
 
